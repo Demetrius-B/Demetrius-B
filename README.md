@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Demetrius-B
+- 👀 I’m interested in Planning, Gaming, Esports, figuring things out, helping others. 
+- 🌱 I’m currently learning about Digital Marketing. 
+- 💞️ I’m looking to collaborate on a development project or teaching(creating a tutorial).
+- 📫 How to reach me Dberkeley97@gmail.com | Twitter: @DemetriusBerke1
